@@ -2,4 +2,4 @@
 Valentina Roballo
 
 
-Link de acceso al video: https://umontevideo-my.sharepoint.com/:v:/g/personal/vroballo_correo_um_edu_uy/EXxfCGGzS_ZBi1ItjybqznkBc5Jqldc6LCNI099xTq5yuw?nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJTdHJlYW1XZWJBcHAiLCJyZWZlcnJhbFZpZXciOiJTaGFyZURpYWxvZy1MaW5rIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXcifX0%3D&e=3jrZxC
+Link de acceso al video de la presentación final: https://umontevideo-my.sharepoint.com/:v:/g/personal/vroballo_correo_um_edu_uy/EXxfCGGzS_ZBi1ItjybqznkBc5Jqldc6LCNI099xTq5yuw?nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJTdHJlYW1XZWJBcHAiLCJyZWZlcnJhbFZpZXciOiJTaGFyZURpYWxvZy1MaW5rIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXcifX0%3D&e=3jrZxC
